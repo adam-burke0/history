@@ -1,5 +1,5 @@
 # Saint Patrick's Brigade/Battalion *(Battalón de San Patricio)*
-
+#### 2020-09-17
 
 * Unit of 175 mostly Irish immigrants who defected from the United States army to join the Mexican army.
 
